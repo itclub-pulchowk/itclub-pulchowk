@@ -1,4 +1,4 @@
-### ✨ Official GitHub Account of IT Club, Pulchwok Campus, IOE ✨
+### ✨ Official GitHub Account of IT Club, Pulchowk Campus, IOE ✨
 
 #### Club Description:
 
